@@ -1,5 +1,5 @@
 ## 👋 Hello! 
-- 📫 You can contact me on my discord : valo#1337
+- 📫 You can contact me on my discord : hahahahalolxdddd
 -------
 
 📊 **Weekly development breakdown**
